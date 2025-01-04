@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...ML projects
 - 📫 How to reach me ...ramtejaramteja9322@gmail.com
 - 😄 Pronouns: ...he/her
-- ⚡ Fun fact: ...I am top scorer in every exam
+- ⚡ Fun fact: ...I love chocolates...
 
 <!---
 Teja-m9/Teja-m9 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
